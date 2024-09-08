@@ -1,1 +1,1 @@
-# oh
+I actually hate this shit dude. I finally get friends that I feel comfortable expressing myself and actually being true. Then drama happens and I lose them. I know its only one and i still have 2 left but its just like.. why? why. At this point I feel like I should just restart again. I dont wanan do that though. Im scared of change. Im scared I wont ever find friends like this again. Im scared that I'll be hurting there feelings. Im scared that Im gonna be labeled as a bad person in there eyes.
